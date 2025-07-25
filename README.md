@@ -1,1 +1,1 @@
-# https-www.msn.com-th-th-ocid-BingNewsSerp-cvid-e47d1b11213949f8863b0631dbd57d2c-ei-12
+https://www.amarintv.com/news/politic/520728
